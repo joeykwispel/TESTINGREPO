@@ -1,14 +1,3 @@
 d
 dd
 fdgfdgfgd
-gdf
-fgd
-fgdgfd
-fdg
-dsfsf
-sdfd
-sfs
-df
-sdf
-sdf
-sdfs
