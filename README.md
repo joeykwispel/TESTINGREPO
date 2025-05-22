@@ -1,14 +1,2 @@
 d
 dd
-fdgfdgfgd
-sdf
-sd\f
-sdff
-ssdfsd\fsd
-fs
-df
-dfdsf
-dsf
-sdf
-fsd
-sd
