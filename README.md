@@ -5,10 +5,3 @@ sdf
 sd\f
 sdff
 sdf
-sdf
-sdghdty
-hrt
-u
-sdf
-dsf
-fsd
