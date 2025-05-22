@@ -5,15 +5,3 @@ gdf
 fgd
 fgdgfd
 fdg
-fd
-gd
-fgfd
-gd
-fg
-dfg
-dfg
-dfg
-dfg
-dfg
-dfg
-dfhgfgkljmhnfsdxkjhghsdxfklhgdslkjhgsdflk
