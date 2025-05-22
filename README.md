@@ -4,10 +4,3 @@ fdgfdgfgd
 sdf
 sd\f
 sdff
-sdf
-dfsdsf
-dsf
-fdsf
-dsf
-dfsdfs
-dsfsd
